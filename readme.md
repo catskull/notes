@@ -2,20 +2,14 @@
 
 I will be taking notes for class in this repo. My current course load is as follows:
 
-##CS 235
-Data Structures
+##Math 112
+Calculus 1
 
-##ECEN 220
-Digital Systems Design
+##Physics 121
+Intro to Newtonian Mechanics
 
-##REL 211
-New Testament 1
+##ECEN 330
+Intro to Embedded Programming
 
-##REL 121
-Book of Mormon 1
-
-##Math 111
-Triginometry
-
-##ECEN 191
-Intro to Engineering
+##Rel 122
+Book of Mormon 2
