@@ -2,14 +2,17 @@
 
 I will be taking notes for class in this repo. My current course load is as follows:
 
-##Math 112
-Calculus 1
+##American Heritage
+American Heritage
 
-##Physics 121
-Intro to Newtonian Mechanics
+##TECH 312
+Innovation
 
-##ECEN 330
-Intro to Embedded Programming
+##TEE 200
+Processes Prototyping Wood
 
-##Rel 122
-Book of Mormon 2
+##TEE 225
+Visual Communication Design
+
+##TEE 330
+Creativity,Engr & Prob Solving
