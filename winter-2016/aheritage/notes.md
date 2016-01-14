@@ -50,3 +50,83 @@ How can we get out of the cycle (human predicament)?
  - Benefits society as a whole
  - balance between liberty and order
  - "goods of the soul": dignity, respect, feeling like you matter
+
+## The American Inheritance
+
+Show me the money or show me the way? Both?
+
+Double helix - one strand is Puritan, one is Virginia. They are both needed. We tend to focus more on puritans, but the virginia settlement is just as important.
+
+Video clip: Founding of Jamestown. Disease, hostile indians, spanish spies. Many died.
+
+## The Story at Jamestown
+
+1607, other attempts to settle previously.
+
+Desire to settle jamestown:
+ - money. They wanted to improve their lot in life. That's what drives them.j
+ - business proposition. Joint-stock operation. You could buy stock in it and hopefully make money.
+ - Adventureres: financial risk takers, venture capitalists. Some members of royalty. They did not come to the colony they stayed home. Simply investors.
+ - Planters: the leaders of the virginia colony. They actually came across. Many of them are second sons, well off families but didn't have an inheritance. Looking to make their way in life, that was harder to do in England. They become the governing bodies. Natural leaders.
+ - Indentured Servants: Less well off than planters. Might have been kicked off land, might be urban dwellers. They contracted with a planter who would pay their passage over and room and board for X number of years, then would be free and would get some land (10, 50 acres). Usually contracted between 4 and 7 years. Much better opportunity than in England.
+
+## Starvation and Salvation
+
+They were ill prepared. Virtually no skills.
+
+Way too many "gentlemen" (about 1/3 of the settlers). Gentlemen did no work, they couldn't work or didn't know how.
+
+They land in a bad spot, no clean water and full of mosquitos.
+
+They did bring a goldsmith, a perfumer, a mason, a couple carpenters.
+
+High mortality rate (80%).
+
+1609 John Smith takes charge. He forces them to work 4 hours a day to eat.
+
+Winter of 1609 only 90 survived.
+
+Eventually saved by tobacco and John Rolfe.
+
+John Rolfe was shipwreked in bermuda and brought tobacco seeds to jamestown. Tobacco becomes extremely popular in england and is valueble. Tobacco becomes a currency in Jamestown.
+
+Jamestown is a total failure. Eventually the crown takes over.
+
+Rolfe takes Pocahontus to England where she becomes a celebrity.
+
+## Jamestown Inheritance
+
+Race based slavery. Indentured servitude didn't work that well, so slavery took it's place.
+
+Created a fierce love of personal liberty. Many people were pretty much on their own so they governed themselves.
+
+Self-government & House of Burgesses
+
+## Mr. Winthrop in the House (Puritans in New England)
+
+John Winthrop isn't a member of the settler group, but he's a respected person and says America will be different, and example to the world, a "city upon a hill".
+
+Puritans are like pilgrims, but not the pilgrims.
+
+Puritans wanted to take the church back to what it was supposed to be.
+
+Mean sailor died, they took it to mean that God had smitten him and that justified their own position.
+
+## Calvanism and the Christian Calling
+
+5 finger test:
+ - God is in charge.
+ - Depravitiy of humans. Humans are horrible by birth and nature, so they must work hard to redeem themselves.
+ - Predestination. You never knew which camp you were in.
+ - Limited atonement. Chirst only atoned for those that were saved.
+ - Perserverence of the elect.
+
+### Puritan Inheritance:
+
+Strong sense of "covenant" communitites
+
+"city upon a hill" is a divinely ordained project
+
+belief in universal and fundimental truth
+
+moral self-governance
