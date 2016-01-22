@@ -130,3 +130,42 @@ Strong sense of "covenant" communitites
 belief in universal and fundimental truth
 
 moral self-governance
+
+# January 20
+
+### MIDTERM 1: Mon Feb. 1 to Thurs Feb. 4. Monday and Tuesday free, Wed. Thurs. late days $5 fee.
+
+## Rebulicanism - The Vocabulary of the Revolution
+
+John Adams - "A revolution is about as likely as 13 clocks striking all at once."
+
+What helped bring the colonies together was a common vocabulary, which reflected an ideology of Rebulicanism.
+
+## Sources of Colonial Thought:
+ - Classics: Cata & Sceneca - problems with empires. They have to be small, expanding over a big area doesn't work out. Big empires are bad, small republics are good.
+ - Common Law: rights of British citizens, traditions, customs, precedents
+ - Enlightenment: "natural rights", these rights come from God nobody can give them or take them away. Begins idea of American expectationism.
+ - Puritans: city on a hill..."sacred land"
+ - British "country" politicians (Whigs): update classical republicanism. Whigs are anti-king party in England and want to see a change in the government. Men who live outside of the royal circle, but still educated and possibly well off.
+
+## Republicansm
+ - res publica..."the public thing"...freedom from domination
+ - decisions made in the common interest. Think of everyone's success before you think of your own. Virtue.
+ - constitutional restraint...divide power...checks and blances...limited tenure for officials.
+ - government selected by all parts of society
+ - follow rule of law
+ - reliance on active, independednt citizenry
+
+## "Country" Politicians (Whigs)
+ - "commonwealth" ideology
+ - corruptible humans need govt. but govt. needs to be carefully watched
+ - political debate contered on power...liberty vs power is zero-sum game
+ - "republican" virtue...self-abnegation. You don't have to take everything you can grab.
+
+## World According to Whigs
+
+"Court" - imperial power, grows unchecked led to corruption, luxury seduces commoners and "placemen" depended on the King. Placemen are dominated by the king, they have to do his bidding or they'll lose their jobs.
+
+"Country" - freedom at all levels of political process, independance based on ownership of land, landowners were society's virtuous backbone
+
+## Video clip: Gladiator - Maximus asked to be in charge because he doesn't want to be.
