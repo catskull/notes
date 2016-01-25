@@ -225,3 +225,36 @@ What helped bring the colonies together was a common vocabulary, which reflected
 "Country" - freedom at all levels of political process, independance based on ownership of land, landowners were society's virtuous backbone
 
 ## Video clip: Gladiator - Maximus asked to be in charge because he doesn't want to be.
+
+# Monday January 25
+
+## Will a social contract hold up in court?
+
+The history of American democracy is realizing too slow or too fast the implications of the declaration of independence.
+
+### John Locke
+
+Possibly the greatest english philosipher of the 17th century.
+
+Locke on Liberty
+ - men began free and equal, living in nature, and from nature we have natural rights like liberty. Rights don't come from government, they come from God.
+ - social contract is the agreement between people to give up natural rights in order to have a fair judgment system
+ - government is not big in Locke's ideas, it's just big enough to protect your life and liberty. They are in an outsider position in order to be a neutral judge.
+ - the government exists because people want it to. They consent to be governed. It exists to help you.
+ - there's a right to revolution AKA re-negotiating the social contract.
+
+The Mayflower pact is a social contract.
+The BYU Honor code is a social contract.
+Why would we agree to the honor code? We lose a lot of freedoms by doing so. Because we want something BYU offers and we're willing to trade those freedoms for it.
+
+### Declaration of Independence
+
+The case is made that the king is taking away their liberties.
+
+Why go after the king? He's the figurehead, it's simpler to go after him than the entire government.
+
+Establishes case that they have a right to revolt. NOt only a right, but a duty.
+
+We give the goverment power by consenting to be governed, not some divine right of kings.
+
+Natural rights: lifer, liberty and the pursuit of happiness. All men are created equal.
