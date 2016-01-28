@@ -258,3 +258,26 @@ Establishes case that they have a right to revolt. NOt only a right, but a duty.
 We give the goverment power by consenting to be governed, not some divine right of kings.
 
 Natural rights: lifer, liberty and the pursuit of happiness. All men are created equal.
+
+# Wednesday, January 27
+
+Test Review: Saturday, Jan 30 10am - 2pm in 2111 JKB and 2113 JKB.
+
+## Rule of Law
+
+Video Clip: John Adams on the importance of the rule of law
+ - He defends the British soldiers not because he cares about them personally, but in order to uphold the law. He loved the law more than even justice.
+
+## Background: Rule of Law
+ - rule by law rather than rule by person, even the government follows laws.
+
+Rule of law is like tinkerbell, you have to believe (be committed) to it in order for it to exist.
+
+## Rule of Law Principles
+ - Generality: laws have to apply to everyone. Equality in the written law.
+ - Prospectivity: applies to future action. They can't apply to past behavior, you must know the penalty of doing something before you do it.
+ - Publicity: You can't oben the law if you don't know the law so the laws must be available for people to access. Laws must be enforced.
+ - Consent: with noted exceptions
+ - Due Pocess: impartial justice
+
+Video Clip: Zimbabwe election. Unjust election. Violates consent because a minority oposition is being oppressed and squashed.
