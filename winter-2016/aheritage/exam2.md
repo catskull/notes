@@ -50,3 +50,128 @@ Spiritually (the soul, no the holy spirit)
 ## Video clip: Officers are planning to march on Phillidelphia because they haven't been paid. Washington finds out.
  - Washington was a drama guy, liked plays.
  - Be true to yourself and you won't march on government.
+
+# The constitution
+
+## Hamilton's Plan
+ - Unlimited tenure for executive and senate
+ - absolute executive veto
+ - state governors appointed by central government
+ - lower house elected by people, upper house elected by electors
+
+Pretty much the British government
+
+# Virginia Plan
+ - Presented by Edmund Randolf, governer of Virginia
+ - new constitution, throw out articles of confederation
+ - create national executive and national judiciary, executive chosen by legislature
+ - create two-house congress power to veto state laws
+ - representation apportioned by population (Virginia was huge population wise, they'd get more representation)
+
+Video clip: constitutional convention. Arguments over small vs big states.
+
+# New Jersey Plan
+ - small state plan
+ - more of a revision of articles of confederation than a totally new constitution
+ - on house congress and equal votes for each state
+ - congress has power to levy taxes, regulate commerce
+ - executive council chosen by Congress, no veto power
+ - supreme court with limited jurisdiction
+ - congress law takes precedence over state laws
+
+Video clip: Pres. Clinton visits California a lot (23 times) during his first term. Why? Because they have lots of votes. You're there because they matter. He visited Nebraska 1 time in his 8 year presidency. Because Nebraska doesn't matter.
+
+# Compromises
+ - facilitated by Benjaman Franklin
+ - facilitated by an alliance between large northern states and slave states
+ - equality in the senate
+ - house of representatives (lower house) is decided by population
+ - lower house controlls spending
+ - senate (upper house) is equal, 2 senators each
+ - slaves counted as 3/5ths of a free person
+ - slavery itself was never an issue, it wasn't on the table
+
+# Seperation of Powers (the brilliance of the consitution)
+
+This is where they really seem to get it right.
+
+Three branches:
+ - legislative branch (congress, makes the laws)
+ - executive branch (president, executes the laws)
+ - Judicial branch (court, least developed in the constituion)
+
+Checks and Balances. Each branch has to work with other branches to get things done. They check the ambition of each others.
+
+Legislative branch:
+
+Shared executive powers:
+ - overriede vetoes
+ - impeaches officials
+ - approves treaties and appointments
+
+# The Bill of Rights
+
+Ratified 1789
+
+First 10 ammendments to the constitution
+
+James Madison uses the Bill of Rights as a way to stop a second constitutional convention
+
+## Civil Rights
+ - concretely described, carefully limited, made to address real-life situations
+ - designed to be pretected in court
+
+## Video Clip
+Bill Clinton sex scandal. "Is it true or false that sex happened?" "It depends on the meaning." "Not right now. But it has happened."
+
+## Bill of Rights
+ 1. freedom of speech, religion, press, assembly, petition
+ 2. right to militia and to bear arms
+ 3. no soldiers quartered in houses
+ 4. no unresasonable search and seizure
+ 5. due process, double jeopardy. You don't have to testify against yourself.
+ 6. speedy and public trial
+ 7. jury trail for civil suits
+ 8. reasonable bail
+ 9. Bill of Rights is not 100% inclusive. There are other rights.
+ 10. powers not delegated to the federal government belongs to the states and the people
+
+# Alexander Hamilton vs Thomas Jefferson
+ - What is the role of the government? Created the first political parties.
+ - Shaped precedencts that flesh out Constitutuion with tradition and practice
+ - determine character of American society
+
+## Video clip: Thomas Jefferson Country Roads
+Farming, kid farming with his dad. American farming.
+
+## The republican vision (thomas jefferson):
+ - Based on Greek ideas. Good citizens make good societies.d
+ - Strong states first, national power second
+ - jeffersonian interpreted the constitution strictly. It had to specifically give the federal government rights.
+ - sees american people as an agrarian people. farmers are most virtuous.
+
+## Video clip: Alexander Hamilton City Life
+Busy New York City. That's where things happen, the best culture. The money, the educated.
+
+## The federalist vision (alexander hamilton)
+ - expansion of national power, strong and united, feared in the world
+ - wants to urbanize america. promote commercial values and inegrated society. Looks to London, not Athens
+ - loose interpretation of constitution. If it doesn't say the federal government can't do it, they can do it.
+ - aristocratic leadership, the rich and wellborn. People like him.
+
+## The French Revolution
+ - Hamiltonians oppose, distrust big ideas, institutions change but not human nature, virtue is untrustworthy
+ - Jeffersonians favor, like power and big ideas, parallels to american revolution, change ehavior through institutions, lead to change & reform
+
+## The "Liberal" Persuasion
+ - trust in human virtue
+ - quick to embrace ideas and ideologies
+ - America is cutting edge of a global revolution to establish justice and human rights
+ - root out corruption and reform institutions
+ - change is acceptable, and it's how you'll make improvements
+
+## The "Conservatie" Persuasion
+ - doublt virtue and appreciae the power of self-interest
+ - mistrust new ideas and ideologies
+ - cultivate american resect in the world through economic and military power
+ - respect established institution and slow on reform
