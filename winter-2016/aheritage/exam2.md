@@ -175,3 +175,32 @@ Busy New York City. That's where things happen, the best culture. The money, the
  - mistrust new ideas and ideologies
  - cultivate american resect in the world through economic and military power
  - respect established institution and slow on reform
+
+
+# Exchange Policy
+
+## Economic Approaches
+ - Tradition: evolved rules and practices
+ - Command: power and autority of government
+ - Market: free exchange
+
+## Video clip: stolen parking space, smashes the car in retaliation
+
+## The economic players
+
+Players        | Goals
+------------------------------------
+|households    | maximize happiness
+|business firms| maximize profits
+|government    | promote efficiency, equity, and freedom
+------------------------------------
+
+## Exchange
+ - coordination of coinciding self-interests
+
+## Competitive Free Exchange
+ - no party controls terms of exchange
+ - must take place in truth and honesty. Good information, no deception.
+ - both parties are better off
+
+## Video clip: kid trades stuff for McDonalds, then trades his fries back for his ball. There is a gain, but no product was created.
