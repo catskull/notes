@@ -204,3 +204,49 @@ Players        | Goals
  - both parties are better off
 
 ## Video clip: kid trades stuff for McDonalds, then trades his fries back for his ball. There is a gain, but no product was created.
+
+# Market Weaknesses - WHen bad things happen to good systems
+
+## What Doesn't Work in System
+ - official poverty rate 15% or 46.7 million Americans (15.5 million children). That number has been about the same for a while.
+ - 1/3 live in poverty at least two months a year
+ - 20 million Americans in severe poverty (income below half the poverty line)
+ - income inequality. Wealth inequality.
+
+## Analysis of Market Weaknesses
+
+ - Market weakness leads to government intervention, which leads to government control increase.
+
+## Imperfect information
+ - Faulty information causes non-mutually beneficial exchanges.
+
+## Video clip: McDonalds commercial
+
+Guys attracted to woman, then they see a kid in a backpack and are no longer attracted. "Dodged a bullet"
+
+## Video clip: McDonalds. Kids want to eat there for the toy. Improper exchange because the kid doesn't really no what he's getting.
+
+## Intervention
+ - compensation through judicial system
+ - more infortation provided, which helps make better exchanges
+ - direct regulation
+
+## Evaluation
+ - effective, occasional excesses
+ - effective yet costly
+ - limits beneficial exchanges
+
+## Externalities
+
+When an exchange effects a third party not involved in the exchange.
+
+Problem
+ - We don't account for what happens to the third person
+
+## Video clip: Guy wants to build a second home on his property, but couldn't because it was zoned for agriculture. So he starts farming in protest. That exchange was between the government and the man, but effected all the neighbors because it's unsightly and smelly.
+
+## Externalities
+
+### Intervention
+ - Define and enforce property rights
+
