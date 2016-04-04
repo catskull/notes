@@ -93,3 +93,37 @@ Norman Rockwell takes the four freedoms and makes iconic paintings from them.
  - Women in the work force, up 60%.
  - Women in the armed forces, not fighting but doing office work.
  - Internment of Japanese Americans, 125,000 relocated away from coast.
+
+# Monday, April 4
+
+Final Exam Friday, April 15 to Tuesday, April 19
+
+## Civil Rights Movement - The Final Renegotiation of the Social Contract
+
+### Phases of the Movement
+ - 1909-54: legal
+ - 1954-67: non-violent
+ - 1967-75: black power
+
+### Phase 1: Legal movement
+
+NAACP founded in 1909. Sought to bring attention to and publicize problems african americans were facing. Also fought for equality through the courts. Started a periodical called "The Crisis" to promote their cause.
+
+W.E.B. DuBois: first african american Harvard graduate. A great american intellectual. Edited The Crisis.
+
+Thurgood Marshall: in charge of NAACP legal defense fund. Successful at bringing suits.
+
+Brown v. Board of Education called for desegregation of public schools. 
+
+Upside: end of legal segregation. Creates momentum.
+
+Downside: Expensive and time consuming. Court decisions are only as their enforcement.
+
+### Phase 2
+
+Legacy of WWII, growing urban black middle class. Gaining power. TV magnified their cause. They can see how whites live on TV and that created a desire. Soviets pointed to segregation in the US.
+
+Rise of Martin Luther King , Jr.
+
+Montgomery Bus Boycott (Rosa Parks) Lasted 381 days. Blacks the primary customers of the busses, so it put pressure on white merchants. Showed that blacks had economic power and that they'd sacrifice together for rights. Led to desegregation of public transportation by the supreme court.
+
