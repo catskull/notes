@@ -24,15 +24,17 @@ Cognitivism
 Constructivism
  - learning through experiences
 
-Piaget - stages of learning
+Piaget - stages of learning | Constructivism
 
-Rogers - self-actualization = congruence
+Rogers - self-actualization = congruence | Constructivism
 
-Rousseau - start in nature, learn a trade, then be introduced to society
+Rousseau - start in nature, learn a trade, then be introduced to society Behaviorism
 
 Pestalozzi - industrial arts
 
-Pavlov - dogs, reward/punishment
+Dewey - democratic classroom | constructivism
+
+Pavlov - dogs, reward/punishment | behaviorism
 
 Skinner - skinner box, rats in a box, positive/negative reinforcement and punishment
 
@@ -40,7 +42,7 @@ Chomsky - simple to complex, cognitive science
 
 Gagner - symantic encoding/information processing
 
-Locke - tabula rasa: open mind, blank slate
+Locke - tabula rasa: open mind, blank slate | Cognitivism
 
 Aristotle - inductive learning, thinking
 
@@ -48,7 +50,7 @@ Eisner - art education
 
 Johnasan - mind tools
 
-Plato - 
+Plato - Cognitivism
 
 Tolman - positive reinforcement leads to increased latency
 
@@ -75,3 +77,56 @@ Watson - kid with stuffed animal and afraid | behaviorism
 Montessori - all kids can and need to learn | constructivism
 
 Comenius - taking apart things can help you learn them | constructivism
+
+
+# Learning Styles
+
+3 Main Categories
+
+Visual
+ - Videos
+ - Reading
+ - Diagrams
+ - Demonstrations
+
+Auditory
+ - Music
+ - Lecture
+ - Debates
+ - Reading out loud
+
+Tactile/Kinesthetic
+ - Diaromas
+ - Field trip
+ - Acting
+
+Visual Learners
+ - see teacher's body language and facial expressions
+ - sit at the front
+ - think in pictures
+ - take detailed notes
+
+Auditory Learners
+ - lectures
+ - discussions
+ - talking things through
+ - interpret the underlying meaning of speech
+ - written information has little meaning until heard
+ - read out loud and use a tape recorder
+
+Kinesthetic
+ - hands on
+ - don't like to sit
+ - need for activity and exploration
+
+## Multiple Intelligence
+
+7 types:
+ - visual/spatial | a beautiful mind
+ - verbal/linguistic | the kings speech
+ - logical/mathematical | alan turing
+ - bodily/kinesthetic | richard simmons
+ - musical/rhythmic | school of rock
+ - interpersonal | data (star trek)
+ - intrapersonal | castaway
+
