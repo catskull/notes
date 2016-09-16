@@ -130,3 +130,40 @@ Kinesthetic
  - interpersonal | data (star trek)
  - intrapersonal | castaway
 
+Eductaion: having knowledge or experience in a subject - one's capacity to be a productive member of society
+
+## Benjamin Bloom
+
+Classified levels of intelligence. Determined most tests only cover lower level recall.
+
+Blooms taxonomy (pyramid, starting at the bottom)
+ - knowledge
+ - understanding
+ - application
+ - analysis
+ - synthesis
+ - evaluation
+
+KCAASE
+ - Knowledge - define things
+ - comprehension - classify, recognize
+ - Application - apply, demonstrate
+ - Analysis - compare, criticize
+ - Synthesis - arrange, construct, build
+ - Evaluation - judge, appriase, predict, value
+
+Geoff's taxonomy
+ - information (given)
+ - knowledge (information becomes knowledge through experiences)
+ - Understanding (you have to apply it)
+ - Wisdom (when you understand you have wisdom)
+
+Is education a moral endeavor?
+
+Yes. Because other humans are involved - Richard Williams
+
+PEEP
+ - Provide access to knowledge
+ - Enculturing the young in a social and political democracy
+ - Ensuring responsible stwardship of schools
+ - Practicing - a nurting pedagogy
