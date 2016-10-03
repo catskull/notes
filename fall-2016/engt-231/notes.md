@@ -83,3 +83,21 @@ Pareto principle - 20% of your time produces 80% of your results
  - understand problem solving steps
  - smart goals
  - time management
+
+## Right VS Wrong
+ - Legal Test: Is this illegal?
+ - Front Page Test: How would I feel if this was published on the front page of the paper?
+ - Role Model Test: (Mom Test) How would I feel if my mom knew about this decision?
+ - Gut Feel Test: What does my gut tell me? Is something wrong?
+ - Mirror Test: Can I look myself in the mirror after this decision?
+ 
+## Ethical Dilemmas
+
+### Pioneer High School
+
+A high school basketball team makes it's way to the state championships. There is a curfew at 10:00PM. If you break curfew, you are suspended from the game. The coach finds out, what does he do? Has the coach done anything wrong? no. Has the other members of the team done anything wrong? No. Has the community done anything wrong? No.
+
+## Resolution approaches
+ - Ends-based (utilitarian = the greatest good)
+ - Rule-bsed (Kantian)
+ - Golden Rule
