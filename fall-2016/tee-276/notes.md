@@ -167,3 +167,30 @@ PEEP
  - Enculturing the young in a social and political democracy
  - Ensuring responsible stwardship of schools
  - Practicing - a nurting pedagogy
+
+Overcoming lack of trust
+ - Share personal histories
+ - experiential team exercises
+ - understanding personality types
+
+overcoming fear of conflict
+ - encourage open discussion
+ - acknowledge that conflict can be productive
+ - recognize engaging in conflict may be uncomfortable
+ - trust first
+
+overcoming lack of commitment
+ - clearly established deadlines
+ - review decisions/assignments
+ - worst case scenario analysis
+ - no team members secretly doubt decisions
+
+overcoming avoidance of accountability
+ - rewared for team behavior rather than individual
+ - simple and regular progress reviews
+ - published goals and standards
+ - eliminate ambiguity
+
+overcoming inattention to results
+ - commit publicly to results
+ - results based rewards

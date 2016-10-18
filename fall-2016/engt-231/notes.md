@@ -83,3 +83,12 @@ Pareto principle - 20% of your time produces 80% of your results
  - understand problem solving steps
  - smart goals
  - time management
+
+
+Nominal Quesion - variables that are non numeric but have a number next to it just to order it
+
+Ordinal - differences between options are not really known (rank the following)
+
+Interval - distance between items is known (what is the tempurature in celcius 0 to 9, 10 to 19, etc)
+
+Ratio - There is an absolute 0. (household income)
