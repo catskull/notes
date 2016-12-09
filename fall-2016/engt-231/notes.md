@@ -98,7 +98,7 @@ Ratio - There is an absolute 0. (household income)
  - Role Model Test: (Mom Test) How would I feel if my mom knew about this decision?
  - Gut Feel Test: What does my gut tell me? Is something wrong?
  - Mirror Test: Can I look myself in the mirror after this decision?
- 
+
 ## Ethical Dilemmas
 
 ### Pioneer High School
@@ -109,4 +109,37 @@ A high school basketball team makes it's way to the state championships. There i
  - Ends-based (utilitarian = the greatest good)
  - Rule-bsed (Kantian)
  - Golden Rule
+
+ PEEP
+  - Provide access to knowledge
+  - Enculturing the young in a social and political democracy
+  - Ensuring responsible stwardship of schools
+  - Practicing - a nurting pedagogy
+
+ Overcoming lack of trust
+  - Share personal histories
+  - experiential team exercises
+  - understanding personality types
+
+ overcoming fear of conflict
+  - encourage open discussion
+  - acknowledge that conflict can be productive
+  - recognize engaging in conflict may be uncomfortable
+  - trust first
+
+ overcoming lack of commitment
+  - clearly established deadlines
+  - review decisions/assignments
+  - worst case scenario analysis
+  - no team members secretly doubt decisions
+
+ overcoming avoidance of accountability
+  - rewared for team behavior rather than individual
+  - simple and regular progress reviews
+  - published goals and standards
+  - eliminate ambiguity
+
+ overcoming inattention to results
+  - commit publicly to results
+  - results based rewards
 
