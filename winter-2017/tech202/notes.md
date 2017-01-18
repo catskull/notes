@@ -49,3 +49,102 @@ Ghiberti's panel had more emotion, thus humanism.
 Brunelleschi - dome. Two domes, one innner lighter, and and exterior dome. Created an "herringbone" brick pattern to give it strenght.
 
 Invented linear perspective.
+
+Donatello's "David" statue. Paegen style, love of the body. Importance to Florence, placed in the Medici garden.
+
+Donatello's Mary Magdalene. Wood, very frail style. Thin, hermit-like. Clothed only with her long hair.
+
+Boticelli's "Birth of Venus". This was groundbreaking because it shows a nude woman that is not Eve. Eve was typically the only nude woman shown in artwork. It's a non-Christian painting. The bodies are floating, not grounded.
+
+Botticelli's "Primavera". She looks kind of like Mary, borrowing from Paegan ideas and pointing to more Christian values. Celebrating the body for what it is: elegant, beautiful. Not really any perspective.
+
+What is Renaissance art:
+ - draws on realism
+ - perspective (brunolesci)
+ - borrowing classical (pagan) themes
+ - Geometrical arrangement
+ - light and shadowing
+ - backgrounds
+ - artists are able to live from comissions
+
+Savonarola
+ - argues against worldy excesses
+ - argues against pagan themes
+ - destroys a lot of art (burns it)
+ - started talking against the church, is excommunicated
+ - eventually he is hung and burned at the same place he burned the art
+
+## Machiavelli
+ - tries to be a friend of the Medici, falls in and out of favor
+ - goes against the ethics of the church and says that the most important thing is to retain power
+ - famous for saying "the end justifies the means"
+
+The Prince
+ - dedicated to the Medici
+ - based on the exploits of Caesare Borgia
+
+The Role of Government
+ - mainain atmosphere of saftey
+ - protect rights of citizens
+ - punish criminals
+ - provide services to citizens
+
+What are the worst conditionas that can exist in a society? Chaos!
+
+What is the primary role of the leader? To stabalize!
+
+A prince's duties:
+ - mainatin stability
+ - manage change
+ - use virtue as required
+ - be liberal or stingy as required for the moment
+ - be loved and feared, avoid hatred
+ - know when to keep a promise
+ - hold to the right when possible, but do what is required
+ - the end justifies the means
+
+## High Renaissance
+
+The heart of the course on the history of creativity.
+
+Roots of Renaissance
+ - increase in education/literacy
+ - appreciataion of classical (roman/greek) era
+ - humanism
+ - wealthy middle class/ruling elite
+ - city-state civic pride
+
+Leonardo da Vinci
+ - examines the intereor of everything
+
+notebooks were coded, read from right to left (mirrored)
+
+he's a scientist, engineer, and artist
+
+sfumato - a kind of shading that is a really softened line so it kind of looks 3D
+
+Madonna of the Rocks
+ - geometric arragment of figures
+ - foreshortening
+
+Mona Lisa
+ - it's probably just dirty (needs to be cleaned)
+
+The Last Supper
+ - really bad condition
+ - geometric organization
+ - judas has elbow on the table
+
+Michelangelo
+
+Pieta
+ - first commission
+ - only signed peice of art
+
+David
+
+Moses
+ - had horns (mistranslation)
+
+Sistine Chapel
+
