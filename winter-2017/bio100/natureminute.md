@@ -30,3 +30,11 @@ They lay some eggs in another coot's nest.
 They count their eggs to know if another bird has put eggs in their basket.
 
 Chicks have "ornamental plumes" and the brighter the chick is, the more attention it gets from it's mother.
+
+## 1/20
+
+### California Quail
+
+Native to pacific coast. Introduced to Utah by Brigham Young in 1869. Common in urban areas and BYU.
+
+Makes a "chi-ca-go" call.
