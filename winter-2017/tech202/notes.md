@@ -148,3 +148,49 @@ Moses
 
 Sistine Chapel
 
+## Reformation
+
+Catholic CHurch in 15th Century
+ - rome being rebuilt after captivity
+ - use of indulgences to raise money
+ - persecution of heretics
+ - wycliffe and tyndale - england
+ - jan huss - bohemia
+
+Martin Luther
+ - sees himself as a flawed individual
+ - takes a trip to rome and see's the lavishness of rome and indulgences first hand
+ - becomes a teacher at Wittenberg
+ - Tetzel "As soon as a coin rings, the soul from pergatory springs"
+ - Posted 95 theses which attacks indulgences and the power of the pope
+ - nails theses on Halloween of 1517
+
+Diet of Worms
+ - Frederick the Wise votes against naming Luther a heretic
+ - Luther is kidnapped by Frederick and taken to a Castle where he is given amnisty
+
+Luther's Basics
+ - faith alone (not works) grants salvation
+ - scriptures alone is the authority, not the church
+ - power comes to all believers, pope/priests don't give the power
+ - Doesn't discourage break off groups
+
+Zwingli (Zurich)
+ - sacrament is only symbolic, not literally the blood and flesh of christ
+
+Calvin (Geneva)
+ - Predestination
+
+**Know that it's violent times in France**
+
+Catholics vs. Protestants
+ - violence across Europe
+ - iconoclasm (destruction of symbols)
+ - peace of Augsburg 1555 (free to choose your religion)
+
+Counter reformation
+ - response to protestant reformation
+ - inquisition destroyed books and other materials
+ - council of trent comissions art to promote the church
+
+"Men must be changed by religion, not religion by men."
