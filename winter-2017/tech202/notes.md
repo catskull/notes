@@ -194,3 +194,59 @@ Counter reformation
  - council of trent comissions art to promote the church
 
 "Men must be changed by religion, not religion by men."
+
+## Renaissance in the North (and Henry VIII)
+
+Henry VIII (8th)
+ - highly skilled and competent
+ - jousting other athletics
+ - multilingual (well educated)
+
+Marriage problems
+
+## Elizabethan England
+
+Reigned for about 50 years.
+
+Succeeded catholic queen "Bloody" Mary
+
+Return to protestantism
+
+More socially/politically liberal
+
+Acceptance problems
+
+She was good friends with king Edward. Not so much with Mary.
+
+Money Problems
+ - visits to Lords (so they have to pay for her)
+ - Stopped the wars with France
+ - promoted industry and trade
+ - Privateers attack Spanish ships and share the booty with the crown (Drake is a famous privateer)
+
+Religious Problems
+ - **Act of Uniformity** 
+ - Didn't persecute Catholics or Protestants
+ - undoes all of Bloody Mary's acts
+
+Golden Age
+
+Population doubles from 100k to 200k. Wealthy middle class.
+
+Demand for arts.
+
+Lots of education, literacy rate grows for men.
+
+Shakespeare invents words.
+
+Bad things
+ - violence, death is commonplace
+ - average lifespan is 35
+ - plagues relatively common
+ - corpereal punishment is common
+ - public group hangings, you could be executed for anything
+
+Elizabethan Women
+ - subservient to husbands
+ - high literacy
+

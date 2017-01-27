@@ -91,3 +91,51 @@ Different genes in your body can cause or prevent cancers.
 Oncogenes are genes which promote cell growth and reproduction.
 
 Tumor suppressor genes are genes which inhibit cell division and survival.
+
+How does a carcinogen cause cancer? We're not sure. It causes gene mutations.
+
+About 30% of cancer deaths could be prevented.
+
+Oxygen can cause cancer.
+
+High correlation between fatty diets and cancer.
+
+Fruits and vegatables contain antioxidents that combine with oxygen so they don't cause DNA damage.
+
+Excercise lowers the chances of cancer. We're not sure how, but it could be that a healthy immune system can fight cancer.
+
+The sun causes cancer. Ultraviolet radiation can break DNA.
+
+What is the role of government in cancer? Does the government have a responsibility to protect citizens from workplace exposure to potentially harmful chemicals.
+
+Infectious cancer? Cancer is not "contagous"
+
+HPV is an infection that can cause cervical cancer. Cervical cancer is about the 5th most deadly cancer worldwide in women.
+
+How does a virus cause cancer? A virus can insert it's cells into your DNA. HPV supresses the cancer suppression gene.
+
+HPV has a vaccine.
+
+## Experiments
+
+open label study - the person taking the drug knows what to expect. Placebo effect, you can trick yourself into thinking it works.
+
+blind experiment - participants know what the drug should do, but don't know if they get the real drug. Some people get the drug, some don't.
+
+double blind - neither the participant or administrator knows if they're getting the real drug
+
+Detecting cancer, early detection is key! If you can detect it before it spreads, it's way easier to cure.
+
+Treatments
+ - surgery, cut it out
+ - chemotherapy targets rapidly dividing cells
+ - radiation therapy, damages cancer cells so they die, they target the cancer
+
+New approaches
+ - new drugs block receptors so the cell won't duplicate
+ - drugs that block angiogensis
+
+How does cancer hurt you?
+ - gets big and puts pressure on surrounding tissue and nerves
+ - cancer can take over an organ and prevent the organ from functioning
+ - lukemia stops production of red blood cells and puts all energy into white blood cell production

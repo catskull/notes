@@ -38,3 +38,41 @@ Chicks have "ornamental plumes" and the brighter the chick is, the more attentio
 Native to pacific coast. Introduced to Utah by Brigham Young in 1869. Common in urban areas and BYU.
 
 Makes a "chi-ca-go" call.
+
+## 1/23
+
+### house sparrow (english sparrow)
+
+evolved to live around people
+
+male has a black bib
+
+spread all over the world, basically all of america (north and south)
+
+bird call sounds like a bird, just kind of a cheeping sound
+
+## 1/25
+
+### House Finch
+
+look like a house sparrow
+
+male has a red bib
+
+female has a striped spekled breast
+
+native to US
+
+# 1/27
+
+### European Starling
+
+They were all released by one guy (in North America) about 60 released in 1890 in Central Park
+
+Really aggresive, have been hard on native birds.
+
+**Huge flocks.** Like a school of fish. Thousands can destroy a feed lot.
+
+Iradescent, colors change in the light (jet black, purple, green)
+
+A group is called a murmeration
