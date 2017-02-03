@@ -76,3 +76,45 @@ Really aggresive, have been hard on native birds.
 Iradescent, colors change in the light (jet black, purple, green)
 
 A group is called a murmeration
+
+# 1/30
+
+### American Kestreal
+
+More like a falcon than a hawk.
+
+A falcon flaps a lot more than a hawk, a hawk glides more.
+
+They can hunt by hovering in the air while scanning the ground.
+
+Face patches. Black and orange color.
+
+AKA sparrow hawk. Really small.
+
+Paragran falcon is related, the fastest animal in the world. Can go up to 200MPH.
+
+## 2/1
+
+### American Robin
+
+both sexes look very similar, females are slightly duller.
+
+call just sounds like chipring "DI da"
+
+around north america all year long
+
+### Dark-eyed Junco
+
+On the ground a lot. Super common.
+
+In the mountains summer and winter. More in mountains in summer, more in valley in winter.
+
+Can always be identified by white on the edges of the tail.
+
+## 2/3
+
+### Bald Eagle
+
+Young bald eagles are bigger. Young ones don't have the white head.
+
+Golden Eagle is similar
