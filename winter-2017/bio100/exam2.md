@@ -83,3 +83,67 @@ You need primers to start copying DNA.
 Polymerase Chain Reaction
 
 in about an hour you can go from 1 copy of dna to a billion
+
+20 types of amino acids
+
+amino acids are the building blocks of protiens
+
+three forms of RNA
+ - messenger
+ - transfer
+ - ribosomal
+
+# Protein
+
+Composed of amino acids
+
+all are the same except the r group
+
+essential amino acids are the ones you can't make yourself
+
+melamine can fool protein tests because they have hydrogen, but melamine is poisonous 
+
+when making a protein chain the byproduct is water
+
+primary structure is just a chain formed by peptide bonds
+
+tertiary structure is when the proteins fold around each other
+
+sickle cell anemia is one amino acid that's out of place, causing it to not fold up correctly
+
+proteins can be "smashed" the shape is changed by:
+ - temperature
+ - pH
+ - chemicals
+
+enzymes change other molecules
+
+# Carbohydrates (sugars)
+
+they have carbons, oxygen and hydrogen C6 H12 O6
+
+sugars built into different shapes make different things: a potato vs cellery
+
+making bonds takes energy, breaking bonds releases energy
+
+ATP adensosine triphosphate
+
+ATP is the currencty of energy. You earn it by eating it, plants earn it by making it (photsynthesis).
+
+*How is it that wood is made out of air* plants capture carbon dioxide out of the air, it converts it into the cellulose
+
+Biological Catalyst (Enzyme)
+
+ezymes can combine substrates, or break them apart
+
+Metabolic Pathways
+
+enzymes add a reactant and pass it along, and the end product is a really complicated product
+
+*Why do leaves change color?* Chlorophyll is green, but in fall it breaks down so the carentonoids (orange) and anthocyanins (red) to show colors that have always been there, but you couldn't see them till the chlorophyl broke down
+
+oranges are there all year, reds don't come till later
+
+factors such as fall weather and how wet it was in the summer can effect how bright the fall colors are
+
+anthocyanins are thought to protect from UV radiation

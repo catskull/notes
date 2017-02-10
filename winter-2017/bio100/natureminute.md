@@ -118,3 +118,35 @@ Can always be identified by white on the edges of the tail.
 Young bald eagles are bigger. Young ones don't have the white head.
 
 Golden Eagle is similar
+
+## 2/6
+
+### Northern Harrier
+
+aka marsh hawk
+
+usually very close to the ground. Flys very close to the ground, flapping/soaring, hovering and then will drop down.
+
+It's face looks kind like an owl.
+
+Can vary quite a bit in color. Wings are usually kind of silverish.
+
+**white band at the base of it's tail is the best way to identify it**
+
+Soar with wings up in kind of a V, not spread out.
+
+## 2/8
+
+### Black billed magpie
+
+Members of the crow family, really really smart
+
+nests look like a big blob of sticks in a tree
+
+they'll eat almost anything, they'll steal dogfood
+
+also yellow billed magpie but they're not found in Utah
+
+## 2/10
+
+Large birds rely on updrafts (warmer areas) to fly. They flap as little as possible.
