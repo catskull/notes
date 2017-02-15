@@ -147,3 +147,34 @@ oranges are there all year, reds don't come till later
 factors such as fall weather and how wet it was in the summer can effect how bright the fall colors are
 
 anthocyanins are thought to protect from UV radiation
+
+## Photosynthesis
+
+Two major processes in photosynthesis:
+ - light driven reaction: harnesses engergy from the sun
+ - carbon fixation reaction: using the energy to make sugar
+
+Glucose Metabolism converts the sugar into energy - exact opposite as photosynthesis
+
+Energy stores:
+ - glucose
+ - glycogen
+ - fat
+ - muscle
+
+# Hormones
+
+## Objectives
+ - understand what a hormone is
+ - understand how glucose levels in the body are regulated
+ - understand the diff bewtween type 1 and 2 diabetes
+
+a hormone is released into the blood stream to send a message to another part of the body
+
+steroid hormones go through the cell wall
+
+peptide hormones bind the protein receptors on the cell wall
+
+insulin tells the liver to take glucose and build it into glycogen
+
+glucagon tells the liver to break down glycogen into glucose

@@ -150,3 +150,13 @@ also yellow billed magpie but they're not found in Utah
 ## 2/10
 
 Large birds rely on updrafts (warmer areas) to fly. They flap as little as possible.
+
+## 2/13
+
+### Canada Goose (not canadian goose)
+
+Usually have a band (usually white, sometimes orange) on it's neck.
+
+Parents sometimes steal other's babies
+
+kind of tumble out of the air to land
