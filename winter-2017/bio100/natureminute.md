@@ -160,3 +160,53 @@ Usually have a band (usually white, sometimes orange) on it's neck.
 Parents sometimes steal other's babies
 
 kind of tumble out of the air to land
+
+## 2/21
+
+### Ring-necked pheasant
+
+Not native to the US, brought here in 1857.
+
+Bright red rooster, but are really really good at hiding.
+
+Common around utah county fields in spring.
+
+Really raspy noise, sound like a big bird noise.
+
+## 2/22
+
+### Red Winged Blackbird & Yellow Headed Blackbird
+
+Looks like a small black bird with a red wing or yellow head respectively.
+
+Synonymous with swamps.
+
+**Listen to song**
+
+# 2/24
+
+## Mule Deer
+
+Western half of the US
+
+female doe, male buck, baby fawn
+
+have white bums, white tail deer tail isn't white, but it's white underneath
+
+larger than a white tailed deer
+
+big ears
+
+antlers fall off every year, new ones are covered by fuzz
+
+antlers branch more, white tailed have one main beam
+
+can migrate thousands of miles
+
+## White tailed deer
+
+do really well around civilization
+
+## horns vs antlers
+
+horns are permenant, antlers shed

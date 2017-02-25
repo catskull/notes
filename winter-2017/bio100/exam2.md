@@ -178,3 +178,9 @@ peptide hormones bind the protein receptors on the cell wall
 insulin tells the liver to take glucose and build it into glycogen
 
 glucagon tells the liver to break down glycogen into glucose
+
+## BMI
+
+Normal index is 18.5 to 25
+
+
