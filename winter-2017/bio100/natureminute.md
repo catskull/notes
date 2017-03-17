@@ -210,3 +210,80 @@ do really well around civilization
 ## horns vs antlers
 
 horns are permenant, antlers shed
+
+# Elk
+
+Male is a bull, female is a cow
+
+Used to be pretty common, but have moved more into the mountains
+
+A male will battle for females and he gets a "herim" of females, can have up to 75 females
+
+During the mating season, the males almost don't sleep. They are constantly protecting their females or mating.
+
+Wolfs reintroducing to Yellowstone
+
+# Black Capped Chickadee/Mountain Chickadee
+
+Black capped are down in the valley, mountain stay up in the hills in the rocky mountains.
+
+**BIRD CALL** chickadee-dee-dee-dee-dee
+
+change body temperature about 15 degrees at night to stay warm enough
+
+their hippocampus grows so they can remember where all their food caches are
+
+# Tundra Swan
+
+Really common in spring and fall. Almost none in summer.
+
+Looks like a snow goose but all white wings instead of black tipped wings.
+
+Trumpeter swan almost identical
+
+# Red-shafted Flicker (northern flicker)
+
+Looks like a woodpecker.
+
+You don't see them in flocks. Bigger than a robin.
+
+Has red shafts on the wings.
+
+Common throughout the country.
+
+# Swan Day
+
+Farmington bay. This saturday (3/11)
+
+# Aspen Trees
+
+Aspens don't usually grow by seed, but by root.
+
+Pando is a colony of aspen trees and they are the heaviest organism on earth 6,000,000 kg. Also one of the oldest on earth.
+
+# Black Bears
+
+They can be black, white, brown, etc. It's not a color, it's a species.
+
+Bears eat everything and nothing. It's hard for them to find enough food.
+
+They're a bad predator, they don't really hunt. They'll turn over every rock and look for grubs and ants.
+
+Mating happens in spring, the egg develops into a balstocyst (just a tiny tiny fetus). Then it sits until fall and if the mom has enough nourishment it will further develop.
+
+# Grizzly bear
+
+Way bigger and aggressive than a black bear.
+
+Grizzly bear has a big hump on it's shoulders.
+
+Face kind of looks more like a wolf than a black bear.
+
+# Cottontail Rabbit
+
+Small rabbit common in foothills around Provo.
+
+Their tail looks like cotton.
+
+Babies are hairless and eyes are closed when they're born.
+
