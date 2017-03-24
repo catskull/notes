@@ -287,3 +287,14 @@ Their tail looks like cotton.
 
 Babies are hairless and eyes are closed when they're born.
 
+# Black Tailed Jackrabbit
+
+it's actually a hare (hares have hair when born and their eyes are open)
+
+Hares live above ground in a leaf litter depression (not a hole)
+
+very large ears (almost see through) with a black tip
+
+much larger, 3-7 pounds
+
+white tailed jackrabbit also exist, usually at a higher elevation. Also super large. Whole body turns white in winter.
