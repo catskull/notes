@@ -298,3 +298,18 @@ very large ears (almost see through) with a black tip
 much larger, 3-7 pounds
 
 white tailed jackrabbit also exist, usually at a higher elevation. Also super large. Whole body turns white in winter.
+
+# Sage Grouse
+
+Does a super strange mating dance where it "pops" it's chest
+
+Big air sacks in the chest, only there in the Spring.
+
+They all meet on the plains (a LEK, meeting of males of a species)
+
+Numbers are in serious decline in the US. Thought to be due to overgrazing cattle and oil and gas drilling.
+
+Dr. Wilson's favorite bird is the Sage Grouse.
+
+**Watch Sagebrush documentary before the final exam**
+
