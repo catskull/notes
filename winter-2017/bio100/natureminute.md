@@ -313,3 +313,17 @@ Dr. Wilson's favorite bird is the Sage Grouse.
 
 **Watch Sagebrush documentary before the final exam**
 
+# Ruffed Grouse
+
+Kind of the size of a chicken.
+
+Called a "fools hen" because they are really dumb.
+
+Males get on a log, and beat their chest. They drum and it makes a low "punching" sound.
+
+# Mountain Goat
+
+Not native to utah, but transplanted and live up on mount tipanogos
+
+black horns (not antlers)
+
