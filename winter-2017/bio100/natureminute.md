@@ -327,3 +327,20 @@ Not native to utah, but transplanted and live up on mount tipanogos
 
 black horns (not antlers)
 
+
+
+Nature minute final (next week)
+
+# Scrub Jay
+
+you see them around campus in scrubby areas
+
+kind of big, looks like a blue jay
+
+looks more like a crow in shape, but blue
+
+# Cougar (aka mountain lion, puma)
+
+Weigh about 100lbs
+
+make a kill about every two weeks
